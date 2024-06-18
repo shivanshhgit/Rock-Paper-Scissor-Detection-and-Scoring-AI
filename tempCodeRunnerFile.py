@@ -1,0 +1,1 @@
+d:\College\Semester 6\AI\Project\New folder\r.jpg
